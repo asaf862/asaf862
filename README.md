@@ -8,7 +8,7 @@ Algoritma ve Programlama dersi ödevim kapsamındaki 5 sorunun çözümünü aş
 
 Videomu izlemek için aşağıdaki linke tıklayabilirsiniz:
 
-👉 **[VİDEOYU İZLEMEK İÇİN TIKLAYIN](https://youtu.be/sj7EfGjRUEI)**
+👉 **[VİDEOYU İZLEMEK İÇİN TIKLAYIN](https://youtu.be/2br4mGvpX74)**
 
 ---
 
